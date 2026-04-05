@@ -83,4 +83,4 @@ This internship helped me gain hands-on experience in real-world data analytics 
 
 ## 🔗 Connect with Me
 
-LinkedIn: (Add your LinkedIn profile link)
+LinkedIn: linkedin.com/in/dhanush-v-rai-772a52353
